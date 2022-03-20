@@ -1,0 +1,1 @@
+# Jurnal04_6706210130_Siti-Fauziah
